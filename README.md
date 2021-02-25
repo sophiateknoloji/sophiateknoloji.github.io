@@ -1,1 +1,0 @@
-# sophiateknoloji.github.io
